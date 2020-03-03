@@ -3,6 +3,6 @@
 **KÉPEK**
 **VIDEÓK**
 **KONTENT**
-check out my youtube channel! https://www.youtube.com/user/Csabee1999/videos?view_as=subscriber
+check out my youtube channel! https://www.youtube.com/user/Csabee1999/
 **NAGGYON MENŐ**
 **epic**
